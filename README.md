@@ -1,21 +1,21 @@
-# My Favorite Movie: Spider-Man: Across the Spider-Verse
+# My Favorite Netflix Series: Stranger Things
 
-**Genre:** *Animation / Action / Sci-Fi*
+**Genre:** *Sci-Fi / Horror / Mystery*
 
-## Tungkol sa Pelikula
-Ang **Spider-Man: Across the Spider-Verse** ay ang sequel ng *Into the Spider-Verse*. Sinusundan nito si **Miles Morales** habang naglalakbay siya sa iba't ibang dimension ng Multiverse kasama si Gwen Stacy at nakikilala ang isang grupo ng mga Spider-People na naatasang protektahan ang bawat universe.
+## About the Series
+**Stranger Things** is set in the small town of **Hawkins, Indiana** during the 1980s. The story begins with the sudden disappearance of a young boy named Will Byers, uncovering a series of mysteries involving secret government experiments, a young girl with telekinetic abilities named **Eleven**, and a terrifying parallel dimension known as *The Upside Down*.
 
-## Mga Paborito Kong Karakter
-* **Miles Morales** – Ang bida mula sa Earth-1610 na handang gumawa ng sarili niyang tadhana.
-* **Gwen Stacy (Spider-Woman)** – Matalik na kaibigan ni Miles na may kakaibang watercolor-style na universe.
-* **Miguel O'Hara (Spider-Man 2099)** – Ang seryosong lider ng Spider-Society na nagbabantay sa "canon events."
-* **Hobie Brown (Spider-Punk)** – Ang astig at anti-establishment na Spider-Man mula sa London.
+## Favorite Characters
+* **Eleven (Jane Hopper)** – A young girl with psychic powers who is willing to sacrifice everything to protect her friends.
+* **Dustin Henderson** – The smart and witty member of the group who always brings humor and clever solutions.
+* **Steve Harrington** – Transformed from a typical high school jock into the group's most loyal and reliable "babysitter."
+* **Max Mayfield** – A brave and fiercely loyal friend featured in one of the most iconic scenes in Season 4.
 
-## Bakit Ko Ito Paborito?
-1. Bawat universe sa pelikula ay may sariling kakaibang art style at animation technique.
-2. Sobrang ganda ng soundtrack at musical score na bumabagay sa bawat eksena.
-3. Nakaka-relate ang kwento tungkol sa paglaki, pamilya, at pagpili ng sariling landas.
+## Why I Recommend It
+1. The 80s nostalgia is incredible, from the iconic soundtrack to the fashion and retro town atmosphere.
+2. Every episode builds intense suspense with major plot twists at the end of each season.
+3. The bond and loyalty among the friends make the story emotionally engaging no matter what danger they face.
 
-> "Everyone keeps telling me how my story is supposed to go. Nah. I'm-a do my own thing." — *Miles Morales*
+> "Friends don't lie." — *Eleven*
 
-Panoorin ang trailer dito: [Spider-Man: Across the Spider-Verse Official Trailer](https://www.youtube.com/watch?v=cqGjhVJWtEg)
+Watch the trailer here: [Stranger Things Official Trailer](https://www.youtube.com/watch?v=b9EkMc79ZSU)
